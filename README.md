@@ -1,0 +1,1 @@
+# LoG_DurbacaCosmin_SichimPetru
